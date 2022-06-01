@@ -1,2 +1,2 @@
-# Ivan  Artamonov
+# Ivan Artamonov
 ## Contacts
